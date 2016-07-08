@@ -8,7 +8,5 @@
 <a href="http://www.telegram.me/Miladnaghipoor">ادمین</a>
 پیام بدید
 
-یه تشکر  ویژه از دوستای خوبم    </br>
-<a href="http://www.telegram.me/Miladnaghipoor">Miladnaghipoor</a></br>
 
 
